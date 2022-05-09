@@ -1,0 +1,1 @@
+# ririkatuma.github.io
